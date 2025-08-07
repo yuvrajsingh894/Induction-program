@@ -10,7 +10,7 @@ Yuvraj singh, Mechanical
 
 -In that fresh morning the shabad made us feel more refreshed and filled with love towards God.
 
--After that the college welcomed us with tea, snacks and sweet.
+-After that the college welcomed us with tea, snacks and sweets.
 
 -The college entered our heart at first glance. Then we were called in the auditorium to attend our Inaugural     
 
@@ -52,15 +52,15 @@ The way she presented the lecture was amazing.
 
 -The second lecture was again from Dr. Priya Darshni Madam who continued the topic of Universal Human Values and thought us about how to get happy internally and completely.
 
+-Then we had a Lecture from Prof. Jaswant Singh with my whole mechanical branch, they addressed us about the role of coding in our fields.
 
+-With which another day passed and we returned our homes with some knowledge.--
 
+# Day-4
 
+## 5th August 2025
 
-
-
-
-
-
+-It was third day and time was afternoon when we I reached college
 
 
 
