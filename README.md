@@ -6,7 +6,7 @@ Yuvraj singh, Mechanical
 ## 30th July 2025
 -It was our first day in Guru Nanak dev engineering college. 
 
--The day I waited from some recent days, Our college organized Shabad Kirtan which held in the religious Guruduwara present in the campus.
+-The day I waited from some recent days, Our college organized Shabad Kirtan which held in the religious Guruduwara Sahib present in the campus.
 
 -In that fresh morning the shabad made us feel more refreshed and filled with love towards God.
 
